@@ -45,6 +45,8 @@
 **판결** : 2018.04.6<br>
 징역 24년 벌금 180억원
 
+<a href="https://github.com/OhmyNews/Park-Geun-hye/blob/master/%EB%B0%95%EA%B7%BC%ED%98%9C%20%EA%B5%AD%EC%A0%95%EB%86%8D%EB%8B%A8%201%EC%8B%AC)%20%EC%84%9C%EC%9A%B8%EC%A4%91%EC%95%99%EC%A7%80%EB%B2%95_2017%EA%B3%A0%ED%95%A9364.pdf">[판결문 보기]</a>
+
 ***
 
 ### '국정농단 정점' 최순실 등 1심
